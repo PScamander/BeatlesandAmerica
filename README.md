@@ -1,0 +1,2 @@
+# BeatlesandAmerica
+The Beatles had been a sweeping cultural phenomenon on both sides of the Atlantic Ocean, with their fans still worshipping their glory 46 years after they split up. The roaring tide, coined by the press ‘Beatlemania’, sailed out from Liverpool, all the way across the Oceans, finally washed over America. This was coined the British invasion of American Popular music, however, I argue that the Beatles did not simply ‘invade’ the US. Quite the contrary, they have a much more complicated history with the United States of America.
