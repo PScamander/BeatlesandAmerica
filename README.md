@@ -26,25 +26,48 @@ In conclusion, the Beatles’ relationship with the US was a very subtle and com
 
 Endnotes
   influenced by country-and-western music: “Country-and-western was so popular here because of the connection through the American sailors" Bob Spitz interview with Don Andrew, 10/4/97
+  
   "In Liverpool, when you stood on the edge of the water you knew”: Fawcett, John Lennon: One Day at a Time, p.115
+  
   "Brando, the beat poets, rock 'n' roll: he'd long since fallen under their spell.” Spitz, The Beatles, 24. Once Upon a Time in America
+  
   “The first singer to capture the attention of John Lennon was Elvis Presley” Price, Charles Gower. “Sources of American Styles in the Music of the Beatles”. American Music 15.2 (1997): 208–232. Web...
+  
  “Nothing really affected me”: Davies, Beatles, p. 19.
+ 
  “Heartbreak Hotel” “was the most exciting thing”: Bob Spitz interview with Pete Shotton, 1/19/98.
+ 
   “[The song] reminded me of Fats Domino”: Miles, Paul McCartney, p. 449.
+  
   “loved the improvisational aspect of it, and he loved mimicking its exaggerated nuances.” : Spitz, The Beatles 
+  
    Harry 2002, pp. 509: McCartney: "The first song I ever sang in public was "Long Tall Sally", 533–534: Harry: "Long Tall Sally", was "The first number Paul ever sang on stage".
+   
   “ He wanted to sound how they sounded, look how they looked, play how they played.”: Spitz, The Beatles, 4. The Showman
   “been over the moon”: C. Lennon, A Twist, p.103
+  
   “In the land of his forefathers: Chuck, Elvis, and Buddy.” Spitz, The Beatles, 24. Once Upon a Time in America
   “Not even for kings”: “3,000 Fans Greet British Beatles,” New York Times, 2/8/64, p. 25.
- “The INS and the US Department of Labor acted on behest of the American Federation of Musicians (AFM) - the union that represents professional musicians in the US - to prevent the Beatles from returning to the US after their debut tour in January and February.” Roberts, Michael. “A Working-class Hero Is Something to Be: The American Musicians' Union's Attempt to Ban the Beatles, 1964”. Popular Music 29.1 (2010): 1–16. Web...
+  
+ “The INS and the US Department of Labor acted on behest of the American Federation of Musicians (AFM) - the union that represents professional musicians in the US - to prevent the Beatles from returning to the US after their debut tour in January and February.” 
+ 
+Roberts, Michael. “A Working-class Hero Is Something to Be: The American Musicians' Union's Attempt to Ban the Beatles, 1964”. Popular Music 29.1 (2010): 1–16. Web...
+
   National Archives and Records Administration, Record Group 174, Stack Area 530, Row 47, Shelf 7, Box 164 'Beatles
+  
   Roberts, Michael. “A Working-class Hero Is Something to Be: The American Musicians' Union's Attempt to Ban the Beatles, 1964”. Popular Music 29.1 (2010): 1–16. Web...
+  
   Rudolf Hecl. ‘The Beatles and Their Influence on Culture’, Mgr. Milada Franková, CSc., M.A. Brno 2006
+  
   Adam Wojtanek. “Hippies and the Beatles”. Popular Music 29.1 (2010): 1–16. Web...
+  
   Adam Wojtanek. “Hippies and the Beatles”. Popular Music 29.1 (2010): 1–16. Web...
+  
  “It was hero worship”: Paul McCartney in ibid.
+ 
   “slipped from feather to thistle” :Spitz, The Beatles
+  
   ‘Beyond the faux French accent, John chided Elvis rudely—and in front of his pals, no less—about his lack of chops, the post-army soft-core singles, and string of cornball movies.’ Hutchins and Thompson, Elvis Meets the Beatles, p. 86.
+  
  “It was a load of rubbish”: NME, 9/3/65.
+ 
